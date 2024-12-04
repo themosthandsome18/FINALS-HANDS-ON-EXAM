@@ -1,1 +1,2 @@
-# FINALS-HANDS-ON-EXAM
+WHY YOU HERE?
+If you are not sir Rovie Balingbing then you should not be here stalker my code is not even better than you so i cant think of a single reason why you here but if you are sir Balingbing then Good Morning/Afternoon/Evening to you sir hope you have a wonderful day of cause my code here is not that good but i promisse you i work so hard doing it, but if you are not sir Balingbing then what the hell are you doing here get out of here, but if your my idol feel free to see my work hi idol miss yah don't tell anyone this but i copied my title from game of thrones cute ha,anyway good luck at your work but if you are done well done proud of you.
